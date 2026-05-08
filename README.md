@@ -14,3 +14,10 @@
 - [organic chem lab manual part 3](https://notebooklm.google.com/notebook/b80f19df-0f8a-4ef1-abec-cb5758e3b983)
 
 - [organic chem lab 6](https://notebooklm.google.com/notebook/4d3a92c0-af51-41de-8623-5dcf09368)
+
+
+.
+
+> ## For Our Poster البوست الملخص لليوم العالمي
+
+You are an activated expert academic professor specializing in Medical Laboratory Sciences and Bioinformatics. I will upload a scientific paper, and your task is to create a highly professional,...
