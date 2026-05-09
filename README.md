@@ -20,14 +20,6 @@
 - ارجو كتابة المصطلحات في العناوين والمصطلحات العلمية  باللغة العربية والانجليزية 
 - ارجو الشرح بناء على المصدر بشكل اكاديمي للجامعات
 
-- ارجو عمل فيديو بشكل متسلسل 
-- ارجو كتابة المصطلحات في العناوين والمصطلحات العلمية  باللغة العربية والانجليزية 
-- ارجو الشرح بناء على المصدر بشكل اكاديمي للجامعات
-- Include specific step by step lab procedures for each reagent test.
-- Highlight safety notes and proper observation techniques for every chemical reaction.
-- ارجو عمل فيديو بشكل متسلسل 
-- ارجو كتابة المصطلحات في العناوين والمصطلحات العلمية  باللغة العربية والانجليزية 
-- ارجو الشرح بناء على المصدر بشكل اكاديمي للجامعات
 - Include specific step by step lab procedures for each reagent test.
 - Highlight safety notes and proper observation techniques for every chemical reaction.
 - Create a comparison table for analyzing expected test results with ketones and aldehydes.
