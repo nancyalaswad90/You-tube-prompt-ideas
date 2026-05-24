@@ -3,6 +3,8 @@
 > ### Prompt Required in my daily work :
 
 
+[inventory Mohamed](https://wafrah.ai/)
+
 # You-tube-prompt-ideas
 
 
