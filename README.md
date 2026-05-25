@@ -5,6 +5,12 @@
 
 [inventory Mohamed](https://wafrah.ai/)
 
+
+
+255 home work for Google and analyzing 
+
+
+
 # You-tube-prompt-ideas
 
 
