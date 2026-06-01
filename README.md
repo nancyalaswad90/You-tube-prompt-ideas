@@ -1,7 +1,8 @@
 .
 > ## Youtube Work
+> 
 
-🔗 Explore my digital portfolio & projects
+🔗 Explore my digital portfolio & projects .. make new in each channel 
 
 
 
