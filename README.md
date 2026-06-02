@@ -2,7 +2,7 @@
 > ## Youtube Work
 > 
 
-🔗 Explore my digital portfolio & projects .. make new in each channel 
+🔗 Explore my digital portfolio & projects .. make new in each channel...using new list as AI List
 
 
 
