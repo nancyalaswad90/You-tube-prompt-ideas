@@ -1,6 +1,7 @@
 .
 > ## Youtube Work
-> 
+>
+> need long vedio
 
 🔗 Explore my digital portfolio & projects .. make new in each channel...using new list as AI List
 
