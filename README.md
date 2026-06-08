@@ -4,7 +4,7 @@
 > ## Youtube Work
 > 
 >
-> need long vedio ...اضافت اكتر كصدقة
+> need long vedio ...اضافت اكتر كصدقة :  https://youtube.com/@nancyalaswad_qurankareem?si=MuqnvOi_hd4Sfa3A
 
 
 🔗 Explore my digital portfolio & projects .. make new in each channel...using new list as AI List
