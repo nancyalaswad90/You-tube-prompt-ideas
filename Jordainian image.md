@@ -1,4 +1,6 @@
 
+<img width="941" height="1672" alt="ChatGPT Image Jun 10, 2026, 10_08_05 PM" src="https://github.com/user-attachments/assets/1ce8025b-8448-4bc6-bfec-935f7133fbcf" />
+<img width="1536" height="2752" alt="Gemini_Generated_Image_6cuymf6cuymf6cuy" src="https://github.com/user-attachments/assets/05d8977f-6876-4d3f-b8c0-66f72952594c" />
 
 "Jumbotron camera moment, caught on stadium big screen, authentic FIFA World Cup qualifier atmosphere, not posed, candid fan reaction."
 Ultra-realistic live sports broadcast capture of the SAME woman from the reference image, naturally spotted by a stadium camera during a high-energy Jordan national football team match.
