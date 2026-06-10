@@ -11,8 +11,6 @@
 -----------------------------------
 
 
-<img width="1536" height="2752" alt="Gemini_Generated_Image_6cuymf6cuymf6cuy" src="https://github.com/user-attachments/assets/05d8977f-6876-4d3f-b8c0-66f72952594c" />
-
 "Jumbotron camera moment, caught on stadium big screen, authentic FIFA World Cup qualifier atmosphere, not posed, candid fan reaction."
 Ultra-realistic live sports broadcast capture of the SAME woman from the reference image, naturally spotted by a stadium camera during a high-energy Jordan national football team match.
 Preserve her exact facial identity, soft features, proportions, skin texture, and natural expression from the original reference. She should still look like herself — not like a random fan, celebrity, influencer, or AI-generated replacement. Avoid altering facial structure, age, ethnicity, eye shape, jawline, or overall identity.
