@@ -1,5 +1,16 @@
 
 <img width="941" height="1672" alt="ChatGPT Image Jun 10, 2026, 10_08_05 PM" src="https://github.com/user-attachments/assets/1ce8025b-8448-4bc6-bfec-935f7133fbcf" />
+
+
+----------------------------------------
+
+
+<img width="651" height="348" alt="image" src="https://github.com/user-attachments/assets/7aee92bc-d7ac-4f69-a75f-40efb5a7ce39" />
+
+
+-----------------------------------
+
+
 <img width="1536" height="2752" alt="Gemini_Generated_Image_6cuymf6cuymf6cuy" src="https://github.com/user-attachments/assets/05d8977f-6876-4d3f-b8c0-66f72952594c" />
 
 "Jumbotron camera moment, caught on stadium big screen, authentic FIFA World Cup qualifier atmosphere, not posed, candid fan reaction."
