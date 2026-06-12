@@ -4,7 +4,11 @@
 
 - t[ نطبيقات الترند]()
 - [t اتعلمت](https://youtube.com/shorts/XKpIJX1rORQ?si=yDUJTQ7CpY43NhTF)
+
 .
+# Prompt للفيويو وتعديلاته 
+اريد هاشتاغ عربي انجليزي لانتشار الفيديو- 
+
 
 > ## Youtube Work
 > 
