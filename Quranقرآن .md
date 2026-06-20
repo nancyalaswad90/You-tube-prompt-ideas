@@ -10,3 +10,8 @@
 
 
 
+-----------------------------------
+> ## صوتك المُدبلج
+
+Review your dubbed voice.This feature is new and may not represent your voice. Learn more
+راجع صوتك المُدبلج. هذه الميزة جديدة وقد لا تُمثل صوتك الحقيقي. اعرف المزيد
