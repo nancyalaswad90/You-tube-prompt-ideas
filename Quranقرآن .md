@@ -34,3 +34,10 @@ Review your dubbed voice.This feature is new and may not represent your voice. L
 
 #سورة_يس تريح القلب وتجلب البركة #تلاوة_خاشعة 
 
+
+nancy alaswad
+
+
+================
+
+.
