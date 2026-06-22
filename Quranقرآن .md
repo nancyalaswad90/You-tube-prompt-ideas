@@ -48,7 +48,7 @@ Review your dubbed voice.This feature is new and may not represent your voice. L
 
 #سورة_الكهف  نورٌ يضيء ما بين الجمعتين   #تلاوة_خاشعة   من الآية   
 
-
+-----------------------
 
 
 nancy alaswad
