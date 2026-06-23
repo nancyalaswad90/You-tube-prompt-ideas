@@ -75,7 +75,8 @@ Review your dubbed voice.This feature is new and may not represent your voice. L
 لسكينة أكثر: استمع للواقعة
 أكمل نورك بسورة الواقعة الآن
 
-أكمل نورك بسورالقآن الكريم الآن
+أكمل نورك بسورالقرآن الكريم
+
 
 -----------------------
 
