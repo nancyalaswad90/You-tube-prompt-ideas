@@ -83,6 +83,8 @@ Review your dubbed voice.This feature is new and may not represent your voice. L
 -----------------------
 
 
+
+
 nancy alaswad
 
 شاهد مزيد من التلاوات الخاشعة
@@ -90,3 +92,12 @@ nancy alaswad
 ================
 
 .
+
+رتبت السور التالية 
+
+- البقرة 
+-
+-  الملك
+-يوسف 
+-  الكهف
+  - 
