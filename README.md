@@ -2,7 +2,8 @@
 
 
 > ## you summarize.... قناة تحتوي على هاشتاج مناسب , الدعاء مع  share youtu.be 
-> 
+
+- pry with ideas
 
 
 - t[ نطبيقات الترند]()
