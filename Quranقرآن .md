@@ -6,8 +6,6 @@
 
 
 
-- https://youtube.com/@alsharawiofficial?si=jfKr9Srvmfz94eSE
-
 
 .
 
