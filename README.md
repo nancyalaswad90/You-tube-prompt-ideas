@@ -3,6 +3,8 @@
 
 > ## you summarize.... قناة تحتوي على هاشتاج مناسب , الدعاء مع  share youtu.be 
 
+
+
 - pry with ideas
 
 
@@ -10,6 +12,13 @@
 - 
 - [t اتعلمت](https://youtube.com/shorts/XKpIJX1rORQ?si=yDUJTQ7CpY43NhTF)
 
+
+> ### My Channal Work
+>
+- [Main Channal](https://www.youtube.com/@nancyalaswad)
+
+.
+-----------------------------------------
 .
 # Prompt للفيويو وتعديلاته 
 اريد هاشتاغ عربي انجليزي لانتشار الفيديو- 
