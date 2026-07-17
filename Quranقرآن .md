@@ -4,7 +4,8 @@
 >
 - work [ al الشعراةي ](https://youtube.com/@alsharawiofficial?si=jfKr9Srvmfz94eSE)
 
-
+- [work idea شيخ ]
+(https://youtube.com/@yaqeen_17_17?si=pxbs8zPykrZHNfHu)
 
 
 .
