@@ -8,6 +8,8 @@
 - pry with ideas
 
 
+
+
 - t[ نطبيقات الترند]()
 - 
 - [t اتعلمت](https://youtube.com/shorts/XKpIJX1rORQ?si=yDUJTQ7CpY43NhTF)
