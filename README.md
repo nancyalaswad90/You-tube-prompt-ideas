@@ -4,9 +4,7 @@
 
 > ## secluded work
 
-ideas 💡  working 
-
-...
+ideas 💡  working ...
 
 
 | **😄[Academic Certification](https://docs.google.com/document/d/1ytyegjotOpyVH_0l4M1EgZ78sOT0HTu4KzbGMDBgbRg/edit)**|
