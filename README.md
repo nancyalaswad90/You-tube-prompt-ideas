@@ -12,9 +12,9 @@ ideas 💡  working ...
 | **😄[Academic Certification](https://docs.google.com/document/d/1ytyegjotOpyVH_0l4M1EgZ78sOT0HTu4KzbGMDBgbRg/edit)**|
  | ------------ |
  
+ 
 | **[Master & First Bachelor in Accounting Path]()** | **[ Second Bachelor in  Information Technology and Computing Path]()** | **[Her Third Path in Medical Laboratory / `Undergraduate`](https://github.com/nancyalaswad90/Medical-Laboratory/blob/main/README.md)** |**[SQL as OCP developer ](https://github.com/nancyalaswad90/nancyalaswad90/blob/master/Certification%20as%20Oracle%20developer%20professional%20.md)** |*[ Each Year Study Schedule](https://github.com/nancyalaswad90/Each-Year-Study-Schedule/blob/main/README.md)*
 |------------ |------------ | ------------ | ------------ |------------ |
-
 
 
 .
