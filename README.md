@@ -4,7 +4,6 @@
 
 > ## secluded work
 >
-> 
 
 ideas 💡  working ...
 
