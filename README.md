@@ -5,6 +5,7 @@
 > ## secluded work
 >
 
+
 ideas 💡  working ...
 
 
@@ -25,6 +26,7 @@ ideas 💡  working ...
 
 - pry with ideas
 
+- Tedex ideas in youtu.be 
 
 - t[ نطبيقات الترند]()
 - 
