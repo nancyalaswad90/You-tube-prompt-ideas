@@ -3,9 +3,10 @@
 .
 
 > ## secluded work
+> 
 >
 
-ideas 💡  working ... مع بحث المعلوماتية الحيوية health economics 
+ideas 💡  working ... مع بحث المعلوماتية الحيوية health economics with research 
 
 
 | **😄[Academic Certification](https://docs.google.com/document/d/1ytyegjotOpyVH_0l4M1EgZ78sOT0HTu4KzbGMDBgbRg/edit)**|
