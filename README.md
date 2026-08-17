@@ -2,8 +2,7 @@
 
 .
 
-> ## secluded work ....
-
+> ## secluded work .
 
 >  ..
 
