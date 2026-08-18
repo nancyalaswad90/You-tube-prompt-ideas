@@ -55,3 +55,72 @@ Credly Digital Badge: https://lnkd.in/dDN9DBVF
 #بيانات #ذكاء_اصطناعي #بايثون #تطوير_مستمر #تحليل_البيانات #تعلم_مستمر
 
 #DataScience #ArtificialIntelligence #Python #ContinuousLearning #DataAnalytics #IBM #Coursera #ProfessionalGrowth
+
+
+
+--------------------------------
+
+
+
+
+🔗 Explore my digital portfolio & projects:
+
+
+
+
+
+
+
+للتواصل والمتابعة | Connect with me:
+
+
+
+- ​LinkedIn: https://lnkd.in/eQ4yt-Mj
+
+
+
+- ​GitHub: https://lnkd.in/gbWpEvf
+
+
+
+- ​Kaggle: https://lnkd.in/eSbGkDPb
+
+
+
+- ​YouTube (Main): https://lnkd.in/dAz-QsaF
+
+
+
+- ​YouTube (Bioinformatics): 
+
+
+
+https://lnkd.in/dN_HYa9i
+
+
+
+
+
+#نانسي_الأسود #تحليل_البيانات #البحث_العلمي #البيانات_الضخمة #نظم_المعلومات 
+
+#HealthTech #Python #AswanHeartCentre #JordanTech #LearningJourney 
+
+​#Nancy_AlAswad #جامعة_عمان_العربية #مؤسسة_ولي_العهد #البحث_العلمي #تحليل_البيانات_الضخمة   #AAU #CPF #DataScience #DataAnalytics #MachineLearning #BigData
+
+​#تطوير_الطب #تحليل_البيانات #الذكاء_الاصطناعي #البيانات_الضخمة  #الأردن #علوم_البيانات #تكنولوجيا_المستقبل
+
+ #DataScience #Bioinformatics #ScientificWriting  #BigData #AAU #Research #Jordan
+
+
+
+
+ -------------------
+
+
+ .
+
+
+
+ |kdsjvvdf|
+ |--------|
+ |python  |
