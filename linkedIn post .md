@@ -101,15 +101,9 @@ https://lnkd.in/dN_HYa9i
 
 
 
-#نانسي_الأسود #تحليل_البيانات #البحث_العلمي #البيانات_الضخمة #نظم_المعلومات 
+#نانسي_الأسود #تحليل_البيانات #البحث_العلمي #البيانات_الضخمة #نظم_المعلومات #جامعة_عمان_العربية #مؤسسة_ولي_العهد #تحليل_البيانات_الضخمة #تطوير_الطب #الذكاء_الاصطناعي #الأردن #علوم_البيانات #تكنولوجيا_المستقبل #التطوير_المهني #علم_البيانات
 
-#HealthTech #Python #AswanHeartCentre #JordanTech #LearningJourney 
-
-​#Nancy_AlAswad #جامعة_عمان_العربية #مؤسسة_ولي_العهد #البحث_العلمي #تحليل_البيانات_الضخمة   #AAU #CPF #DataScience #DataAnalytics #MachineLearning #BigData
-
-​#تطوير_الطب #تحليل_البيانات #الذكاء_الاصطناعي #البيانات_الضخمة  #الأردن #علوم_البيانات #تكنولوجيا_المستقبل
-
- #DataScience #Bioinformatics #ScientificWriting  #BigData #AAU #Research #Jordan
+#HealthTech #Python #AswanHeartCentre #JordanTech #LearningJourney #Nancy_AlAswad #AAU #CPF #DataScience #DataAnalytics #MachineLearning #BigData #Bioinformatics #ScientificWriting #Research #Jordan #IBM #Coursera #ContinuousLearning #Analytics
 
 
 
