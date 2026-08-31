@@ -3,6 +3,10 @@
 .
 
 > ## secluded work .... more ideas
+
+_ [Businessintelligence]()
+-
+
 > 
 
 
